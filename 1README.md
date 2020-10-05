@@ -1,5 +1,5 @@
-#거니 최애 모음집 
-###1. 시고르자브종  
+# 거니 최애 모음집 
+### 1. 시고르자브종  
 
 ![똥개](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcSrYN8uPvTqN0O9cNIJlxW5xy1YjnxwrcsmOQ&usqp=CAU)  
 
@@ -7,7 +7,7 @@
 
 tmi) 시골할부지댁에 _덕구_ 라고 있는데 그냥 사진올리는 법을 모르겠어서 못올림 너무 귀여우니까 연락바람 보여드림
 
-###2. T1 FAKER  
+### 2. T1 FAKER  
 
 ![페이커](https://t1.daumcdn.net/cfile/tistory/9910694A5E0AE5E831)  
 
@@ -19,7 +19,7 @@ tmi2) 페이커는 많은 광고를 찍었다. 그 중에서 단연 최고는 _"
 [링크](https://www.youtube.com/watch?v=KUeq__RmAjE)  이 광고 1시간 연속재생 영상은 내 노동요다.
 ####여기까진 폰최애...가질 수 없어서 애타는 느낌이라면 이제는 진짜임 
 
-###3. 초밥과 닭발  
+### 3. 초밥과 닭발  
 
 ![초밥](https://image.yes24.com/blogimage/blog/s/i/sisajapan/naver_com_20120409_150500.jpg)
 ![닭발](https://lh3.googleusercontent.com/proxy/GHUzn_nmyMOPcsxyzFmuhdU91z_WaTsMhlwtkLKhPnxscK9s1WU7Gq4qZ6nxIcz0VBy8nGRezHRM5CpTmz8HleyrKtwFu99JV0jJiS82nqtT3HLFXMGRg3y7KXnn0sjRZNIdhqqAUcJcMxilf6npZibQ1GXCrA)  
